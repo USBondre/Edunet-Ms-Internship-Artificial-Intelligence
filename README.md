@@ -1,1 +1,0 @@
-# Edunet-Ms-Internship-Artificial-Intelligence
